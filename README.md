@@ -1,2 +1,3 @@
 # sameertest
-testig by myself
+tested by myself
+as said by u bubbly
